@@ -2,7 +2,7 @@
 Practical HIPAA Quick-Compliance Plan with checklist, gap analysis, and action plan – scroll-stopping and viral-ready!
  🚨 HIPAA Quick-Compliance Plan – Make HIPAA Fun Again 🎉
 
-**Author:** Tylesha Alexander
+**Author:** Tylesha A
 **Date:** February 16,2026
 **Category:** Governance, Risk & Compliance (GRC)  
 
